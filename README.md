@@ -1,2 +1,2 @@
-# Nothing-Bot-Privacy-Policy-Terms Of Service
+# Nothing-Bot-Privacy-Policy-Tos
 # Made By Ankush
